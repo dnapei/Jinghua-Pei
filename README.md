@@ -1,1 +1,1 @@
-# B2B
+# JP's Personal System
